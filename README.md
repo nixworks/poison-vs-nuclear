@@ -1,3 +1,3 @@
-# poison vs 
-nuclear
+# poison vs nuclear
+
 soft tissue/internal organ killer
